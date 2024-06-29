@@ -1,1 +1,1 @@
-# relevant-software-ua-is-a-Lviv-based-it-company-specializing-in-custom-software-development-for-clients-worldwide
+# relevant-software-ua-is-a-Lviv-based-it-company
